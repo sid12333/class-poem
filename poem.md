@@ -8,6 +8,6 @@ The trees will sing, the hills will sigh,
 The morning breaks as birds take ___.
 Their whispers dance and kiss the sky.
 
-[Your closing stanza here]
+Take your time and feel the vibe.
 
 [Your Name]
